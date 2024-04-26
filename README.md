@@ -52,7 +52,7 @@ https://lnkd.in/e_mtzFCR.
 
 **¡Hagamos de la seguridad laboral una prioridad compartida!** 💬🛠️🤝
 
-## Principales hallazgos de las Personales Adultas del Distrito de Lurín
+## Principales hallazgos de las Personas Adultas del Distrito de Lurín
 #### • Datos proporcionados por la Municipalidad Distrital de Lurín y respaldado por la Secretaría de Gobierno y Transformación Digital del Perú
 
 Hace poco, mientras veía la serie de Netflix "Vivir 100 años", decidí adentrarme en un análisis de las personas adultas mayores y descubrí la información que publicó la Municipalidad Distrital de Lurín justo sobre el tema. 🤓
